@@ -1,0 +1,1 @@
+# amdshtrih.github.io
